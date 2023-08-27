@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Latasha Norman.
+- 👀 I’m interested in cooking, reading, fishing, and spending time with my grandchildren.
+- 🌱 I’m currently learning, Business Management for my associate's degree.
+- 💞️ I’m looking to collaborate on opening up my business one of these days so I can leave it to my kids.
+- 🍕 My passion is to have a restaurant and or a food truck.
